@@ -1,1 +1,1 @@
-# vidi-cdn69.github.io
+# vidi-cdn69
